@@ -1,0 +1,1 @@
+# Pameteno_stikalo
